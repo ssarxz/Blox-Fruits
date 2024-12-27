@@ -8,5 +8,8 @@
 
 ![image](https://github.com/user-attachments/assets/feed5c23-5984-4d84-8c77-9c31e6b14b00)
 
+![maxresdefault](https://github.com/user-attachments/assets/2e2b42cf-7f84-41e0-a359-6da172f04170)
+
+
 tags:
 blox fruits script,blox fruit script,script blox fruits,script blox fruit,hack blox fruit,blox fruit script pastebin 2024,blox fruits script pastebin 2024,blox fruit hack,blox fruits hack,roblox blox fruits script,roblox blox fruit script,blox fruit script pastebin,blox fruits script pastebin,bloxfruit script,blox fruits scripts,bloxfruits script,blox fruit scripts,blox fruit auto farm,blox fruits auto farm,roblox hack,blox fruits update 24 script
